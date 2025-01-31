@@ -1,0 +1,10 @@
+-  I am ved prakash sharma
+-  I am working in I.I.T.K. as a DPM
+-  I manage computer lab system support
+-  Update software and internet phipheral
+-  Work in a team as a member
+-  Support in lab class, quiz, exam
+-  I am currently learning Advance Excel
+-  I am looking to collaborate on Microsoft Office and Copilot
+-  I am interested in playing Chess
+-  I always involve social activity
